@@ -1,0 +1,2 @@
+# premium-antler-001-antler-carving-grain-direction
+Stop guessing and breaking expensive antler blanks. The Antler Carving Grain Direction Analysis Log helps you systematically document grain flow, so every cut follows nature's path—saving material and frustration.  This Notion template replaces messy notes and memory with a structured database for tracking grain direction on each antler piece. By l
